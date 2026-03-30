@@ -33,7 +33,7 @@ Prepared a case study and prevention checklist.
 
 ## Links
 
-Google Form Link: (paste your link here)
+Google Form Link: https://forms.gle/sgBBXHDM3PoXv42n8
 
 ---
 
